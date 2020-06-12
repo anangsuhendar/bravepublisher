@@ -1,2 +1,2 @@
-# bravepublisher
-Brave publisher
+# brave
+Brave is fastest and adsfree browser , you must try it https://brave.com/bee966
